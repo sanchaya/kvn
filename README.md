@@ -1,4 +1,4 @@
-# ಕೆ. ವಿ. ನಾರಾಯಣ ಅವರ ಕನ್ನಡ ಸಾಹಿತ್ಯ ಸಂಚಯು
+# ಕೆ. ವಿ. ನಾರಾಯಣ ಅವರ ಕನ್ನಡ ಸಾಹಿತ್ಯ ಸಂಚಯ
 
 ಕೆ. ವಿ. ನಾರಾಯಣ ಅವರ ಕನ್ನಡ ಸಾಹಿತ್ಯ ಸಂಚಯು is a showcase of the #ServantsOfKnowledge project works @Sanchaya
 
